@@ -1,2 +1,2 @@
 # penguin100_
-HI
+Resources on the war in Ukraine and how to help
